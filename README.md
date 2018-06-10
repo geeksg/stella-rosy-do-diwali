@@ -1,1 +1,0 @@
-# stella-rosy-do-diwali
